@@ -1,16 +1,20 @@
-## Hi there 👋
+ㅤㅤㅤㅤ   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ''  _there’sㅤ a ㅤniceㅤ moodㅤ goin’ ㅤonㅤ  ,   butㅤ I ㅤthink ㅤI’llㅤ interrupt_  .ㅤㅤ'
+ㅤ
+ㅤ
 
-<!--
-**FloRidflowers/FloRidflowers** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ㅤ
+ㅤ
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ㅤ<img width="2000" height="1125" alt="tumblr_6d6f3819df2362e616704f77070e9a6b_37a2313b_2048" src="https://github.com/user-attachments/assets/11c8ec98-c071-4bc0-b13f-ca89177c3bfb" />
+
+<img width="2048" height="209" alt="image" src="https://github.com/user-attachments/assets/051c1933-70cf-4324-8e32-bc09a4e2a66a" />
+
+
+
+
+
+
+
+ㅤ<img width="109" height="18" alt="image" src="https://github.com/user-attachments/assets/cfc99534-60ff-46e1-aaa0-f8e1938e8020" /> ㅤ<img width="300" height="40" alt="image" src="https://github.com/user-attachments/assets/b86084fe-a73d-4bc3-9e66-ea199e178f51" />
+
