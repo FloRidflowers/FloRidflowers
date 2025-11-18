@@ -7,21 +7,18 @@
 
 
 
-
+🐚ㅤplease do NOOOOTTTTTT. cover me or copy my skins please !!
 
 
 
 <img width="300" height="40" alt="image" src="https://github.com/user-attachments/assets/b86084fe-a73d-4bc3-9e66-ea199e178f51" />ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-🫧ㅤVERY big twst oc enthusiast (THEYRE SO PEAK BRO)
-
 🦈ㅤliterally floyd leech irl ....
+
+🫧ㅤVERY big twst oc enthusiast (THEYRE SO PEAK BRO)
 
 🪸ㅤmight yap about twst ocs here more in the future
 
 🌀ㅤif youre in my friends list/my party feel free to come up and cㅤ+ㅤhㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-
-🦐ㅤMOOOOOOM!ㅤTTHERES SHRIMP ON SALE AT THE NEXTㅤ.EXITTTTTTT!!
-
-⚓ㅤshrimp on sale at this hour? how convenient.ㅤi'll just take the next exit.
+⚓ㅤmy only language is english(despite being. filipino and polish) so dont assume i speak a certain language if it's in my name. Its probably just refrencing a meme or a song(SORRU)
