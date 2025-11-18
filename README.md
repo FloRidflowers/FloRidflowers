@@ -15,7 +15,7 @@
 
 🪸ㅤmight yap about twst ocs here more in the future
 
-🌀ㅤif youre in my friends list/my party feel free to come up and cㅤ+ㅤhㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+🌀ㅤif youre in my friends list/my party feel free to come up and cㅤ+ㅤh
 
 ⚓ㅤmy only language is english(despite being. filipino and polish) so dont assume i speak a certain language if it's in my name. Its probably just referencing a meme or a song(SORRU)
 
