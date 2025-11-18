@@ -7,10 +7,6 @@
 
 
 
-🐚ㅤplease do NOOOOTTTTTT. cover me or copy my skins please !!
-
-
-
 <img width="300" height="40" alt="image" src="https://github.com/user-attachments/assets/b86084fe-a73d-4bc3-9e66-ea199e178f51" />ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 🦈ㅤliterally floyd leech irl ....
@@ -21,4 +17,7 @@
 
 🌀ㅤif youre in my friends list/my party feel free to come up and cㅤ+ㅤhㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-⚓ㅤmy only language is english(despite being. filipino and polish) so dont assume i speak a certain language if it's in my name. Its probably just refrencing a meme or a song(SORRU)
+⚓ㅤmy only language is english(despite being. filipino and polish) so dont assume i speak a certain language if it's in my name. Its probably just referencing a meme or a song(SORRU)
+
+🐚ㅤplease do NOOOOTTTTTT. cover me or copy my skins please !!
+
