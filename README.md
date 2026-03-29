@@ -17,7 +17,8 @@
 
 🌀ㅤif youre in my friends list/my party feel free to come up and cㅤ+ㅤh
 
-⚓ㅤmy only language is english(despite being. filipino and polish) so dont assume i speak a certain language if it's in my name. Its probably just referencing a meme or a song(SORRU)
+⚓ㅤmy only language is English (despite being. Filipino and Polish) so dont assume i speak a certain language
 
 🐚ㅤplease do NOOOOTTTTTT. cover me or copy my skins please !!
 
+👑ㅤDAY ONE ROYAL SWORD ACADEMY FAN BTW. IVE LOVED RSA FOREVER!!!!!!
