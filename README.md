@@ -1,5 +1,5 @@
-# '' there’sㅤa niceㅤmoodㅤgoin’ㅤon  ,  but IㅤthinkㅤI’ll interrupt .ㅤ''
-<p align="center">
+# '' there’s a nice mood goin’ on , but I think I’ll interrupt. ''
+<p align="center"> 
 <img width="109" height="18" alt="image" src="https://github.com/user-attachments/assets/cfc99534-60ff-46e1-aaa0-f8e1938e8020" />
 
 ㅤ<img width="2000" height="1125" alt="tumblr_6d6f3819df2362e616704f77070e9a6b_37a2313b_2048" src="https://github.com/user-attachments/assets/11c8ec98-c071-4bc0-b13f-ca89177c3bfb" />
