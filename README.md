@@ -1,7 +1,7 @@
 <p align="center"> 
 " there’s a nice mood goin’ on , but I think I’ll interrupt. "
 
-&nbsp; 
+  
 
 <p align="center"> 
 <img width="109" height="18" alt="image" src="https://github.com/user-attachments/assets/cfc99534-60ff-46e1-aaa0-f8e1938e8020" />
@@ -19,14 +19,14 @@
 
 if youre in my friends list/my party feel free to come up and c + h.. >_<, and most of this README is copied from my alt Haha
 
-  ╰┈➤ artist, minor , intp , 9w1 ⋆˚🌀｡
+ㅤㅤㅤㅤㅤ╰┈➤ artist, minor , intp , 9w1 ⋆˚🌀｡
 
-&nbsp; 
 
+  
 ﹕🪸 . FANDOMS : twisted wonderland , danganronpa , hetalia , genshin , honkai , identity v , bungo stray dogs , cookie run , dungeon meshi , gachiakuta , enstars , alien stage , pokemon , etc
 
 ﹕⚓ . DNI : basic dni , vivziepop media fans(sorry) , tcoaal fans , above 19(unless already friends) , overly sensitive people , I think theres more but i cant be bothered to remember,
 
-&nbsp; 
+  
 
 THANK YOU FOR READING!! ^^
