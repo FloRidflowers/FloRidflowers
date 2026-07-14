@@ -27,6 +27,8 @@ if youre in my friends list/my party feel free to come up and c + h.. >_<, and m
 
 ﹕⚓ . DNI : basic dni , vivziepop media fans(sorry) , tcoaal fans , above 19(unless already friends) , overly sensitive people , I think theres more but i cant be bothered to remember,
 
-  
-
+   
 THANK YOU FOR READING!! ^^
+ 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31zf3abdngz5covaptki34xnt2li&cover_image=true&theme=default&show_offline=false&background_color=06080e&interchange=true&profanity=false&hide_remaster=false&bar_color=1e7b29)](https://github.com/kittinan/spotify-github-profile)
+
