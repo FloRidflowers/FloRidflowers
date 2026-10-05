@@ -1,6 +1,9 @@
 <p align="center"> 
 " there’s a nice mood goin’ on , but I think I’ll interrupt. "
 
+<div align="center">
+ 
+![](https://komarev.com/ghpvc/?username=FloRidFlower&color=teal&style=plastic&label=.🫧˖&abbreviated=true)
   
 
 <p align="center"> 
